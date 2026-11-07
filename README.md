@@ -227,4 +227,4 @@ Horizon Forbidden West is provided as a complete free version, including all fea
 Ready to embark on your adventure? **Download Horizon Forbidden West now and explore the new frontier!**
 
 ---
-**Last updated:** 2026-11-07 08:21:39 UTC
+**Last updated:** 2026-11-07 15:25:58 UTC
